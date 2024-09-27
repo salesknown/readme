@@ -3,11 +3,6 @@
 
 
 - Eu sou estudante.
-- Gosto de programação.
-- estudo no alura
+- Gosto de programação
 
-
-
-
-
-![.](https://tenor.com/pt-BR/view/neymar-sheozinho-gif-8795846103648563476)
+  ### Entrar em contato comigo
