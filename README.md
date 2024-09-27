@@ -1,5 +1,5 @@
 # readme
-### Olá, meu nome é Kauã ### 😛
+### Olá, meu nome é Kauã ### 😛🫴
 
 
 - Eu sou estudante.
