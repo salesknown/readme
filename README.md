@@ -9,6 +9,6 @@
   kaua.keher@escola.pr.gov.br
 
 
-![](https://tenor.com/f6XubEljvee.gif)
+![]https://tenor.com/pt-BR/view/neymar-gif-27009028
 ☢ݠ﷽ﷺﷹﷶﷻﷳﷱﶿﶾﶽ
   
